@@ -1,2 +1,1 @@
 - 👋 Hi, It's @r4gast
-- 📫 How to reach me r4gast@protonmail.com
